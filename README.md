@@ -32,3 +32,5 @@ Head over to https://playsprunki.net/ to play Sprunki Incredibox online today!
 Please note: As a fan-made mod, Sprunki Incredibox may not be officially affiliated with the original Incredibox game.
 
 **Visit** the [All Sprunki Games](https://playsprunki.net)<br />
+
+[Trustscore](https://www.scamadviser.com/check-website/playsprunki.net)
