@@ -35,3 +35,5 @@ Please note: As a fan-made mod, Sprunki Incredibox may not be officially affilia
 
 [Trustscore](https://www.scamadviser.com/check-website/playsprunki.net)
 [patreon](https://www.patreon.com/posts/how-to-create-ai-127714514)
+[patreon collection](https://www.patreon.com/collection/1494892)
+
